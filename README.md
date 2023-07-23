@@ -2,7 +2,7 @@
 - 👀 I’m interested in anything that arouses interest
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate with no one because I'm afraid
-- 📫 How to reach me: send mail, I may read it (not out of arrogance, but because I rarely check the mailbox)
+- 📫 How to reach me: send mail, maybe I'll read it (not out of arrogance, but because I rarely check the mailbox)
 
   
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢰⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
